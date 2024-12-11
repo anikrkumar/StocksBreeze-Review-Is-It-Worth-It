@@ -1,3 +1,4 @@
+# StocksBreeze Review: Is It Worth It?
 
 ![image](https://github.com/user-attachments/assets/384257e4-c804-4841-baa2-50c774df4c6f)
 
